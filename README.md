@@ -1,0 +1,1 @@
+# easy_rights_wiki
